@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... porn
 - 🌱 I’m currently learning ... nothing
 - 💞️ I’m looking to collaborate on ... porn
-- 📫 How to reach me ...
+- 📫 How to reach me ... ;)
 
 <!---
 Average-code-Enjoyer/Average-code-Enjoyer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
