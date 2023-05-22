@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Average-code-Enjoyer
-- 👀 I’m interested in ... porn
-- 🌱 I’m currently learning ... nothing
-- 💞️ I’m looking to collaborate on ... porn
+- 👀 I’m interested in ... sus
+- 🌱 I’m currently learning ... sus
+- 💞️ I’m looking to collaborate on ... sus
 - 📫 How to reach me ... ;)
 
 <!---
